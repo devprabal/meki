@@ -33,5 +33,3 @@ Over the years, many people have made a place in his life, and he in theirs. As 
 
 ![this guy office](./attachments/this_guy.gif)
 
-**Mekioetsm 🥵**
-
